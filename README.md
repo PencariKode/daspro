@@ -1,4 +1,4 @@
-![Foto Panji Depari](https://mahasiswa.usu.ac.id/api/files/photos/241402034.png)
+![Foto Panji Depari](https://kelas.usu.ac.id/pluginfile.php/293071/user/icon/space/f1?rev=1537125)
 
 # Repository Pribadi Panji Briant Depari
 
